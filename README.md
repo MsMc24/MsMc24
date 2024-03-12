@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...teaching young learners
 - 🌱 I’m currently learning ...Korean and Python
 - 💞️ I’m looking to collaborate on ... English textbooks!
-- 📫 How to reach me ...meganmcintosh@gmail.com
+- 📫 How to reach me ... meganmcintosh@gmail.com
 - 😄 Pronouns: ...She/Her
 - ⚡ Fun fact: ... My sister lives in Sweden!
 
